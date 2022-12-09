@@ -5,3 +5,5 @@ Image cite link 1: Compassion USA. “Help End Live Animal Exports.” Compassio
 Image 1 secondary: “Compassion in World Farming.” Google Image Result for Https://Www.ciwf.com/Images/Logo.svg, Google, https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.ciwf.com%2Fimages%2Flogo.svg&amp;imgrefurl=https%3A%2F%2Fwww.ciwf.com%2F&amp;tbnid=d4gKn88gHFivbM&amp;vet=12ahUKEwjQ35Wdn-P7AhWTtOYKHSZTBIcQMygCegQIARBX..i&amp;docid=nqTVeEmBDJ8PwM&amp;w=800&amp;h=175&amp;q=compassion+in+world+farming+png+free&amp;ved=2ahUKEwjQ35Wdn-P7AhWTtOYKHSZTBIcQMygCegQIARBX. 
 The Humane Society of the United States, https://www.humanesociety.org/. 
 “Humane Society of the United States Facebook.” Google Search, Google, https://www.google.com/search?q=humane%2Bsociety&amp;rlz=1C1ONGR_enUS983US983&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;ved=2ahUKEwi3rcqvs-j7AhXMkYkEHQ57ByoQ_AUoA3oECAIQBQ&amp;biw=1280&amp;bih=601&amp;dpr=1.5#imgrc=98v0aHc5IKBVOM. 
+
+The Social Pathology of Animal Abuse: Goodney,Suzanne.”Delinquency and Animal Cruelty.”Myths and Realities about Social Pathology,LFB Scholarly Publishing,(2007)
